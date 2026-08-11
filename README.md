@@ -1,2 +1,0 @@
-# ingles
-trabajo de ingles
